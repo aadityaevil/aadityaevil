@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aadityaevil
+- 👋 Hi, I’m @aditya Shirole
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning IT engineering
 - 📫 How to reach me Shiroleaditya@gmail.com
