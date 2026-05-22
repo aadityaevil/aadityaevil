@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aditya Shirole
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning IT engineering
-- 📫 How to reach me Shiroleaditya@gmail.com
+- 📫 How to reach me Shiroleaditya13@gmail.com
 - 😄 Pronouns: Aditya
 - ⚡ Fun fact:Happy kid
 
